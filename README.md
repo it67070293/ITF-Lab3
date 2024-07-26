@@ -1,8 +1,6 @@
 "# ITF2567"
 
 hello 67070293
-
-ojnrhoinhrinhaipanhfpiwhrpi
         (\__/)
         (•ㅅ•) 
     ＿ノヽ ノ＼＿
